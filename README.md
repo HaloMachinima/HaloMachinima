@@ -1,31 +1,5 @@
- 🧡 The Grif to my Simmons!  
-mwahhh i loveee uu planting a big kiss on ur helmet  
-
-♡ [pilot/griff](https://gr1ff.straw.page/) ♡
- <img src="https://media1.tenor.com/m/MySYOwQdBPsAAAAC/rvb-grif.gif" width="140">
- 
----
-
- 💚 My Lovely Husband Lockdown  
-mwah mwahhh lovee uu lockdown mwawh i adore tyou so much <333 
-
-♡ [LD](https://github.com/llock-e) ♡
- <img src="https://media1.tenor.com/m/7Q-4A8tqaaYAAAAC/lockdown-youre-good.gif" width="140">
- 
----
-
- 🖤🤍 Two Time / Sebastian  
-We love you!!! Heavy shoutout to them cs their awsome 
-
-✧ [Ttwwoo](https://tr4pped-h3art.straw.page/) ✧
- <img src="https://media1.tenor.com/m/MLJ-kIxU9mAAAAAC/two-time-forsaken.gif" width="140">
- 
----
-
- 💛 Dewfreak   
-Love u/p also go get some sleep n' take care of urself... mwah!/p 
-
-☆[dewdrop](https://www.patreon.com/c/heavyhook/about) ☆
- <img src="https://media.tenor.com/3h_PZTNDlY8AAAAi/cookie-run-sticker.gif" width="140">
- 
----
+ <img src="https://i.pinimg.com/736x/b2/70/90/b270905461e8b4a3399e6c00f967c898.jpg" width="140"> 
+---------
+If you wanna interact with me or be friends you can message me over Patreon or on my atabook! Or over Ponytown when I'm online.
+Patreon/Atabook might be a slow response though.
+(Might not be online much because I'm taking care of my health & school is soon
