@@ -5,4 +5,4 @@
 
 > Patreon/Atabook might be a slow response though.
 
-> (Might not be online much because I'm taking care of my health & school is soon
+> (back in school till june 17th ( subject to change )
