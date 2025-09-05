@@ -3,6 +3,8 @@
 
 > If you wanna interact with me or be friends you can message me over Patreon, Strawpage, or atabook! Or over Ponytown when I'm online.
 
+> In depth information can be found on my Patreon <3
+
 > Patreon/Atabook might be a slow response though.
 
 > (back in school till june 17th ( subject to change )
