@@ -1,4 +1,4 @@
- <img src="https://static.wikia.nocookie.net/rvb/images/9/90/5F411EF3-88B3-4733-B234-CDF208416FCF.jpeg/revision/latest?cb=20190321031111" width="300"> 
+ <img src="https://i.pinimg.com/1200x/ad/32/68/ad3268852ded388074d0f13a65d213da.jpg" width="300"> 
 ---------
 
 > If you wanna interact with me or be friends you can message me over Patreon, Strawpage, or atabook! Or over Ponytown when I'm online.
