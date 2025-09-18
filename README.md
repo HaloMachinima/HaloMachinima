@@ -1,4 +1,4 @@
- <img src="https://www.pinterest.com/5e2410d3-2a80-4132-ae86-c5c2ec30f0e3" width="300"> 
+ <img src="https://i.pinimg.com/736x/c2/c0/8b/c2c08b315fff19f8db3e742cc31fd629.jpg" width="300"> 
 ---------
 
 > If you wanna interact with me or be friends you can message me over Patreon, Strawpage, or atabook! Or over Ponytown when I'm online.
